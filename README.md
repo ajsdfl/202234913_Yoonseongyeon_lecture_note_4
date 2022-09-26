@@ -1,1 +1,0 @@
-# 202234913_Yoonseongyeon_lecture_note_4
